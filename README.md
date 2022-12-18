@@ -1,2 +1,10 @@
 # Day-6
-Searching for 10 online Games for the huddle.  Watching Build Session last Friday and give feedback.   Continuation of intern quest.
+high Lights
+
+Searching for 10 online Games for the huddle.  
+Watching the Build Session last Friday and giving feedback.   
+Continuation of intern quest
+
+Low lights
+
+Slow progress on the intern quest
